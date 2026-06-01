@@ -1,0 +1,1 @@
+# praktika-shop-nimmi
